@@ -1,5 +1,3 @@
-![https://media.licdn.com/dms/image/C5616AQE6YfiaNTTglQ/profile-displaybackgroundimage-shrink_350_1400/0/1662314914471?e=1692835200&v=beta&t=b-sPEqSpcs_NtJPmeo0x_2q60HpCuWTOiAPDXyVByEU](https://media.licdn.com/dms/image/C5616AQE6YfiaNTTglQ/profile-displaybackgroundimage-shrink_350_1400/0/1662314914471?e=1692835200&v=beta&t=b-sPEqSpcs_NtJPmeo0x_2q60HpCuWTOiAPDXyVByEU)
-
 <h1 align="center">وادوه بڠ نداق امان كه</h1>
 
 <!--<p align="center">hi, are you looking for the other side? // feel like nothing ever seems quite right? // are you circling the drainpipe, getting off on pain like // you're corrupted?</p>-->
